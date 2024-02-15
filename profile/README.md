@@ -1,1 +1,1 @@
-# [Superla.tv](https://superla.tv)
+# [Superla Play](https://superla-play.com)
